@@ -1,1 +1,1 @@
-iamau
+We are strong
